@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pancakeswap trading bot with new pancakeswap trading bot Executor | gas-optimization + sandwich-attack-protection. Featuring gas-optimization and
 
 
 
